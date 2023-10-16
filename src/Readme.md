@@ -1,0 +1,1 @@
+![ortalamaHesabı.jpg](..%2F..%2F..%2F..%2FDownloads%2FortalamaHesab%C4%B1.jpg)
